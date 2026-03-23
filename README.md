@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **todkarkomal96047@gmail.com** For Collaboration/Project or
 - 🌱 **I’m currently learning:** React.js || .node js
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** todkarkomal96047@gmail.com
-- 😄 **Pronouns:** komal Todkar Sir
+- 😄 **Pronouns:** komal Todkar 
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 
